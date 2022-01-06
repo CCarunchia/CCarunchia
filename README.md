@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @CCarunchia
 - 👀 I’m interested in finding investors
-- 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on opening a resort on a private island
 - 📫 How to reach me colette.carunchia@gmail.com 
 
